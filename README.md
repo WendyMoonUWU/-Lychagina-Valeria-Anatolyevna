@@ -1,1 +1,1 @@
-# -Lychagina-Valeria-Anatolyevna
+# -Lychagina-Valeria-Algoritm
