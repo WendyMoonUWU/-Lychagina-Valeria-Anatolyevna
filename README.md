@@ -1,5 +1,6 @@
 # Lychagina-Valeria-Algoritm
 aboba
+https://docs.google.com/document/d/1RNIcFdpGU8XdySlAh8lRgpzSZyNmM7WihQEuy2GrOfA/edit?usp=drivesdk
 Sometimes a long laugh is replaced by a scream. ლ(ಠ‿ಠლ)
 ⠀⠈⠧⠜⠀⠀⠀⠀⠀⡇⠀⠀⣰⢿⢻⣦⡀⠀⠀⠈⠀⠀⠠⢀⠒⣄⡶⠯⠾⠟⠤⢉⡛⢙⠋⠻⠀⠴⠾⣗⣻⡓⠀⠠⠀⢀⡀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⢀⠚⠒⠋⣿⢏⡯⢳⣟⢿⣮⣛⢦⡐⢌⡱⢈⣢⡞⡕⢂⠤⠀⡀⠀⠀⡀⠀⠀⠀⠀⣀⣬⠟⠁⠀⣡⣴⡯⣟⣦⠀⠀
