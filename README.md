@@ -1,1 +1,1 @@
-# -Lychagina-Valeria-Algoritm
+# Lychagina-Valeria-Algoritm
